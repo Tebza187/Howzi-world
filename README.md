@@ -1,3 +1,3 @@
 # Howzi-world
 Cherry-Popped-on-GitHub
-I love my :family:, :pizza:
+I love my :pizza:, :coffee:
